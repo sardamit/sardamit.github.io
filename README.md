@@ -1,2 +1,0 @@
-# sardamit.github.io
-CV
